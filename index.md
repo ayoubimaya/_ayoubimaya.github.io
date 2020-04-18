@@ -2,6 +2,9 @@
 # (Sweet Cheese Rolls)
 <center><a href="https://ibb.co/yVyj4Ms"><img src="https://i.ibb.co/cxFnYpT/halawet-el-jibn.jpg" alt="halawet-el-jibn" border="0"></a></center>
 
+## About
+A classic Levantine dessert that is more fluffy and rich than it is sweet. People don't necessarily think of cheese when they think dessert, but one taste of this delectable will change your mind! Unlike other Levantine desserts (think Knafeh), Halawet el Jibn is great at any temperature! 
+
 ## Ingredients
 
 ### For Syrup:
@@ -25,7 +28,7 @@
 - 1/4 cup shredded sweet cheese (or mozzarella)
 
 ## Instructions:
-### Making Syrup:
+## Making Syrup:
 **1.** In the small saucepan, combine together the sugar, water and squeeze of lemon juice. Set on the stove top over medium high heat.
         
 **2.** Bring to a rolling boil, then immediately reduce the heat to low and let it simmer for no longer than 10 minutes.
