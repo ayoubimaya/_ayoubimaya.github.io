@@ -15,7 +15,7 @@ Here's my Lebanese style baklawa where a rose and orange blossom water based syr
 - 3/4 teaspoon orange blossom water
 - 3/4 teaspoon rose water
 
-## For Filling
+### For Filling
 - 1/2 cup granulated sugar
 - 1 egg white (optional)
 - 1 tablespoon rose water
@@ -23,7 +23,7 @@ Here's my Lebanese style baklawa where a rose and orange blossom water based syr
 - 2-3 cups unsalted pecans (or pistachios, walnuts)
 - 1 teaspoon rose water
 
-## For Baklawa
+### For Baklawa
 - 1 lb of filo dough (24 sheets)
 - 8 oz of ghee, melted
 
