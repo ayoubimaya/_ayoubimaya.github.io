@@ -1,1 +1,3 @@
-# **[Halawet el Jibn recipe](./halaweteljibn.html)**
+# **Explore Away!
+
+## **[Halawet el Jibn recipe](./halaweteljibn.html)
