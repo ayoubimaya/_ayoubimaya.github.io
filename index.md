@@ -48,6 +48,6 @@
         
 **6.** Repeat with other pieces of dough.
         
-**7.** Arrange the rolls on a platter, sprinkle each with ground pistachios in the center and rose petal jam or dry rose petals.
+**7.** Arrange the rolls on a platter, sprinkle each with ground pistachios in the center and rose petal jam or dried rose petals.
         
 **8.** Drizzle with syrup and enjoy!    
