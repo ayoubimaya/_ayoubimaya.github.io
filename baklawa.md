@@ -2,7 +2,9 @@
 <center><a href="https://ibb.co/yVyj4Ms"><img src="https://i.imgur.com/3dLiNGe.jpg" border="0"></a></center>
 
 ## About
-Baklawa is a rich filo and nut pastry that is made in MENA, Turkey, Southeast Europe, and Central Asia.
+[Baklawa](https://en.wikipedia.org/wiki/Baklava) is a rich filo and nut pastry that is smothered in syrup or honey. It's so good that every country wants to claim it as their own, but suffice to say that it is made in MENA, Turkey, Southeast Europe, and Central Asia. 
+
+Here's my Lebanese style baklawa where a rose and orange blossom water based syrup is used instead of honey! I put a little spin on things by replacing the traditonal walnut or pistachio filling with the nut from the American south, pecans.
 
 ## Ingredients
 
@@ -18,7 +20,7 @@ Baklawa is a rich filo and nut pastry that is made in MENA, Turkey, Southeast Eu
 - 1 egg white (optional)
 - 1 tablespoon rose water
 - 2 tablespoons cinnamon (optional)
-- 2-3 cups nuts (pistachios, walnuts, cashews, pecans)
+- 2-3 cups unsalted pecans (or pistachios, walnuts)
 - 1 teaspoon rose water
 
 ## For Baklawa
