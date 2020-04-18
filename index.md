@@ -3,7 +3,7 @@
 <center><a href="https://ibb.co/yVyj4Ms"><img src="https://i.ibb.co/cxFnYpT/halawet-el-jibn.jpg" alt="halawet-el-jibn" border="0"></a></center>
 
 ## About
-A classic Levantine dessert that is more fluffy and rich than it is sweet. People don't necessarily think of cheese when they think dessert, but one taste of this delectable will change your mind! Unlike other Levantine desserts (think Knafeh), [Halawet el Jibn](https://en.wikipedia.org/wiki/Halawet_el_Jibn) is great at any temperature! 
+A classic Levantine dessert that is more fluffy and rich than it is sweet. People don't necessarily think of cheese when they think dessert, but one taste of this delectable delicacy will change your mind! Unlike other Levantine desserts (think Knafeh), [Halawet el Jibn](https://en.wikipedia.org/wiki/Halawet_el_Jibn) is great at any temperature! 
 
 ## Ingredients
 
