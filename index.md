@@ -3,24 +3,24 @@
 ## Ingredients
 
 ### For Syrup:
-2 cups granulated sugar
-1 cup water
-1/2 teaspoon lemon juice
-3/4 teaspoon orange blossom water
-3/4 teaspoon rose water
+- 2 cups granulated sugar
+- 1 cup water
+- 1/2 teaspoon lemon juice
+- 3/4 teaspoon orange blossom water
+- 3/4 teaspoon rose water
 
 ### For Halawet el Jibn (Sweet cheese rolls)
-1 1/2 cup of water
-3/4 cup sugar
-1 cup fine semolina
-28 g of sweet cheese (or mozzarella cheese), shredded or sliced thin
-1 tablespoon rose water
-1 tablespoon orange blossom water
+- 1 1/2 cup of water
+- 3/4 cup sugar
+- 1 cup fine semolina
+- 28 g of sweet cheese (or mozzarella cheese), shredded or sliced thin
+- 1 tablespoon rose water
+- 1 tablespoon orange blossom water
         
 ### For Filling:
-8 oz of mascarpone cheese
-1 tablespoon of almond milk
-1/4 cup shredded sweet cheese (or mozzarella)
+- 8 oz of mascarpone cheese
+- 1 tablespoon of almond milk
+- 1/4 cup shredded sweet cheese (or mozzarella)
 
 ## Instructions:
 ### Making Syrup:
