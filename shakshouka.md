@@ -39,4 +39,4 @@ This tomato based stew is filled with bold flavors and spices great anytime of t
 
 **4.** Turn off heat, use the back of a spoon to make 2 shallow indentations in surface of sauce. Crack 2 eggs directly into each indentation. Sprinkle a little salt and pepper over the egg yolk. Cover and cook over medium-low heat until egg whites are opaque and and yolks are still runny. Sprinkle with feta and remaining parsley and serve.
 
-<center><a href="https://i.imgur.com/as3nl0m.jpg" border="0"></a></center>
+<center><a href="https://ibb.co/yVyj4Ms"><img src="https://i.imgur.com/as3nl0m.jpg" border="0"></a></center>
