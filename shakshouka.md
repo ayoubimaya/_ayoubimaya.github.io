@@ -1,4 +1,4 @@
-# Shakshuka
+# Shakshouka
 <center><a href="https://ibb.co/yVyj4Ms"><img src="https://i.imgur.com/71tHQoC.jpg" border="0"></a></center>
 
 ## About
