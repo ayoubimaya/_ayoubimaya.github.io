@@ -27,7 +27,7 @@ This tomato based stew is filled with bold flavors and spices great anytime of t
 - 4 eggs
 - 1 oz feta cheese, crumbled
 - 1 teaspoon harissa (optional)
-- 4 hot pita breads
+- 4 small warm pita breads
 
 ## Instructions
 
@@ -37,6 +37,6 @@ This tomato based stew is filled with bold flavors and spices great anytime of t
 
 **3.** Turn of heat, discard bay leaves and stir in 1/8 cup parsley. Transfer 2 cups of sauce to the blender and puree. Stir puree back into the skillet and bring to a simmer over medium-low heat.
 
-**4.** Turn off heat, use the back of a spoon to make 2 shallow indentations in surface of sauce. Crack 2 eggs directly into each indentation. Sprinkle a little salt and pepper over the egg yolk. Cover and cook over medium-low heat until egg whites are opaque and yolks are still runny. Sprinkle with feta and remaining parsley and serve!
+**4.** Turn off heat, use the back of a spoon to make 2 shallow indentations in surface of sauce. Crack 2 eggs directly into each indentation. Sprinkle a little salt and pepper over the egg yolk. Cover and cook over medium-low heat until egg whites are opaque and yolks are still runny. Sprinkle with feta and remaining parsley and serve with warm pita!
 
 <center><a href="https://i.imgur.com/as3nl0m.jpg"><img src="https://i.imgur.com/as3nl0m.jpg" border="0"></a></center>
