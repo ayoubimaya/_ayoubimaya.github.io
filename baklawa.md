@@ -71,4 +71,4 @@ Here's my Lebanese style baklawa where a rose and orange blossom water based syr
 
 **14.** Enjoy!
 
-<center><a href="https://ibb.co/yVyj4Ms"><img src="https://i.imgur.com/1jbYDz5.jpg" border="0"></a></center>
+<center><a href="https://i.imgur.com/1jbYDz5.jpg"><img src="https://i.imgur.com/1jbYDz5.jpg" border="0"></a></center>
