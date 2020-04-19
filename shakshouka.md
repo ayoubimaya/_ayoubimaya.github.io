@@ -19,8 +19,8 @@ This tomato based stew is filled with bold flavors and spices great anytime of t
 - 1 teaspoon grinded rainbow peppercorns
 - 1/8 teaspoon of red pepper flakes (optional)
 - 1/8 teaspoon cayenne pepper
-- 1 1/2 cups fire roasted red peppers, chopped coarse
-- 1 can unsalted diced tomatoes
+- 12 oz fire roasted red peppers, chopped coarse
+- 1 can (14.5 oz) unsalted diced tomatoes
 - 1/8 cup water
 - 2 bay leaves
 - 1/4 cup chopped parsley
