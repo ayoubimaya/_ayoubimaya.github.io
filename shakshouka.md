@@ -9,7 +9,7 @@ This tomato based stew is filled with bold flavors and spices great anytime of t
 ## Ingredients
 - 3 tablespoons avocado oil
 - 1 onion, chopped
-- 1 red bell pepper, seeded, and chopped
+- 1 red bell pepper, seeded and chopped
 - 2 garlic cloves, minced
 - 2 teaspoons tomato paste
 - 1 teaspoon ground cumin
