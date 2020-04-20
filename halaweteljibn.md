@@ -45,7 +45,7 @@
         
 **2.** Reduce heat, then add sweet cheese and rose water, and stir until cheese melts and the mixture forms a soft consistent dough. Let it cool before handling. 
         
-**3.** Divide the dough into however many pieces you see fit; take 1 part of the dough to work with and cover the other pieces. Turn our the dough onto a sheet of plastic wrap and cover with another sheet. Roll out the dough between the 2 sheets of plastic wrap into a rectangle. Remove the top plastic sheet.
+**3.** Divide the dough into however many pieces you see fit; take 1 part of the dough to work with and cover the other pieces. Turn out the dough onto a sheet of plastic wrap and cover with another sheet. Roll out the dough between the 2 sheets of plastic wrap into a rectangle. Remove the top plastic sheet.
         
 **4.** Fill a ziplock bag with your filling and snip off an inch of the tip. Start piping on the long side closest to you, leaving an inch border.
         
