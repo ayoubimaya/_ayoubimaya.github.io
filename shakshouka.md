@@ -6,6 +6,8 @@
 
 This tomato based stew is filled with bold flavors and spices great anytime of the day.
 
+### Serving Size 2-3
+
 ## Ingredients
 - 3 tablespoons avocado oil
 - 1 onion, chopped
