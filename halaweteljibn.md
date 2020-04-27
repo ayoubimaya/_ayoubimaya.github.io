@@ -10,7 +10,7 @@
 ### For Syrup
 - 2 cups granulated sugar
 - 1 cup water
-- 1/2 teaspoon lemon juice
+- 1/2 teaspoon freshly squeezed lemon juice
 - 3/4 teaspoon orange blossom water
 - 3/4 teaspoon rose water
 
