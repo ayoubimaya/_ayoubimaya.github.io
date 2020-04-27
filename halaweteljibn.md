@@ -1,9 +1,9 @@
-# Halawet el Jibn
+# Halawet El Jibn
 # (Sweet Cheese Rolls)
 <center><a href="https://ibb.co/yVyj4Ms"><img src="https://i.ibb.co/cxFnYpT/halawet-el-jibn.jpg" alt="halawet-el-jibn" border="0"></a></center>
 
 ## About
-[Halawet el Jibn](https://en.wikipedia.org/wiki/Halawet_el_Jibn), my favorite pastry as a kid until now! A classic Levantine dessert that is more fluffy and rich than it is sweet. People don't necessarily think of cheese when they think dessert, but one taste of this delectable delicacy will change your mind! Unlike other Levantine desserts (think Knafeh), Halawet el Jibn is great at any temperature! 
+[Halawet El Jibn](https://en.wikipedia.org/wiki/Halawet_el_Jibn), my favorite pastry as a kid until now! A classic Levantine dessert that is more fluffy and rich than it is sweet. People don't necessarily think of cheese when they think dessert, but one taste of this delectable delicacy will change your mind! Unlike other Levantine desserts (think Knafeh), Halawet el Jibn is great at any temperature! 
 
 ## Ingredients
 
@@ -14,7 +14,7 @@
 - 3/4 teaspoon orange blossom water
 - 3/4 teaspoon rose water
 
-### For Halawet el Jibn (Sweet cheese rolls)
+### For Halawet El Jibn (Sweet cheese rolls)
 - 1 1/2 cup of water
 - 3/4 cup sugar
 - 1 cup fine semolina
