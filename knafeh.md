@@ -4,7 +4,7 @@
 ## About
 [Knafeh](https://en.wikipedia.org/wiki/Kanafeh), an amazing Middle Eastern dessert made with thin shredded filo noodles (or semolina dough), sweet cheese, clotted cream, or nut filling, and soaked in a sugar based syrup.
 
-I've always loved knafeh growing up, but as a teenager I went vegan and needed to find a way to still enjoy it. I ended up making a 100% dairy free kind at home that I still enjoy today. I'll be showing you how to make knafeh with sweet cheese, ashta, and coconut milk filling! 
+I've always loved knafeh growing up, but as a vegan teenager I needed to find a way to make a dairy free kind. But how? with coconut milk, of course! Years later with my veganism behind me, I still find myself preferring my vegan recipe over the traditional cheese knafeh. I'll be showing how to make 3 varieties of knafeh (sweet cheese, ashta, and vegan coconut milk filling). 
 
 *Serving Size 10-12* 
 
